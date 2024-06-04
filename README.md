@@ -1,16 +1,16 @@
-## Hi there 👋
+## Seja bem vindo ao meu perfil🖤
 
-<!--
-**cibelly00/cibelly00** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Nayra
 
-Here are some ideas to get you started:
+- Eu gosto de passar tempo com meus amigos tirando o @marcio.
+- Estou cursando o 3ª ano do ensino Medio.
+- Amo vestidos rosas👗.
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ### Você pode entrar em contato comigo 📫
+  @nayracibelly00@gmail.com
+
+  inst:@badd_nayra
+
+![](https://media.tenor.com/7TzEQ2nkWscAAAAM/funny-memes-discord.gif)
+
